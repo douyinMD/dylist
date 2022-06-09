@@ -3,11 +3,11 @@
 
 （所有APP均无毒可用，免费下载）
 
-### 站点1 https://madou88.org
-### 站点2 https://doujing.xyz
-### 站点3 https://dy.mdou.me
-### 站点4 https://dytvapp.com
-### 站点5 https://doujing.tv
+### 站点1 https://www.madou88.org/
+### 站点2 https://www.doujing.xyz/
+### 站点3 https://dy.mdou.me/
+### 站点4 https://dytvapp.com/
+### 站点5 https://www.doujing.tv/
 ### 抖荫记录美好姓生活
 ![image](https://user-images.githubusercontent.com/107183335/172826682-a4f23931-ccf4-479d-bd08-12e1d75e99a9.png)
 
