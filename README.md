@@ -7,3 +7,6 @@
 ### 2、https://douying.app
 ### 3、https://douying.app
 ![image](https://user-images.githubusercontent.com/107183335/172826682-a4f23931-ccf4-479d-bd08-12e1d75e99a9.png)
+
+二维码
+![image](https://user-images.githubusercontent.com/107183335/172828434-d3c9d661-b3fd-432f-acc8-382048f6b88a.png)
