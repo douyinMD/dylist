@@ -2,8 +2,12 @@
 （建议安卓使用Chrome浏览器、苹果在Safari中打开，请勿用微信打开） 
 
 （所有APP均无毒可用，免费下载）
-
-##  https://douying.app
+## 以下任意地址，都可以找到回家的路哦
+### https://douyin01.vip
+### https://douyin02.vip
+### https://douyin03.vip
+### https://douyin04.vip
+### https://douyin05.vip
 ### https://www.madou88.org/
 ### https://www.doujing.xyz/
 ### https://dy.mdou.me/
