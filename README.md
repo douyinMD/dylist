@@ -3,12 +3,7 @@
 
 （所有APP均无毒可用，免费下载）
 
-## [https://douying.app](https://douying.app)
-### https://douyin01.vip
-### https://douyin02.vip
-### https://douyin03.vip
-### https://douyin04.vip
-### https://douyin05.vip
+##  https://douying.app
 ### https://www.madou88.org/
 ### https://www.doujing.xyz/
 ### https://dy.mdou.me/
